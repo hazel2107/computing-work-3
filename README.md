@@ -1,12 +1,11 @@
 # computing-work
 Hello! I am Nexus Ang from Dunman High School
 
-My Hobbies
+My Hobbies:
+* Sleeping
+* Gaming
+* Studying
 
-Sleeping
-Gaming
-Studying
 My Education
-
-Mee Toh School
-Dunmanigh School
+1. Mee Toh School
+2. Dunmanigh School
