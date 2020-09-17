@@ -1,5 +1,5 @@
 # computing-work
-*Hello*! I am **Nexus Ang** from [Dunman High School](https://youtube.com/never-gonna-give u-up-rick astley)
+*Hello*! I am **Nexus Ang** from [Dunman High School](https://www.dunmanhigh.moe.edu.sg)
 
 My Hobbies
 * Sleeping
