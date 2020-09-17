@@ -8,4 +8,4 @@ My Hobbies
 
 My Education
 1. Mee Toh School
-2. Dunmanigh School
+2. Dunmanhigh School
