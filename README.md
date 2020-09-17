@@ -6,6 +6,7 @@ My Hobbies
 * Gaming
 * Studying
 * My Education
+
 My school 
 * Mee Toh School
 * Dunmanigh School
