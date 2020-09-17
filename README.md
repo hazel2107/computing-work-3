@@ -5,8 +5,7 @@ My Hobbies
 * Sleeping
 * Gaming
 * Studying
-* My Education
 
-My School 
+My Education 
 * Mee Toh School
 * Dunmanigh School
