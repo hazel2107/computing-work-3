@@ -9,3 +9,6 @@ My Hobbies
 My Education 
 * Mee Toh School
 * Dunmanhigh School
+
+My CCA
+* Saint john's brigade. I love it so much! i learn a lot of useful tips!
